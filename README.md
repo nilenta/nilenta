@@ -1,5 +1,5 @@
-i do things
+I'm nilenta.
 
-i like to Code....
+I like to make random dumb projects and most of my repos are private.
 
-Idk
+If you need to contact me, my discord is just my username.
